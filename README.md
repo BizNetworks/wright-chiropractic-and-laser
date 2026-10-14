@@ -1,0 +1,1 @@
+# wright-chiropractic-and-laser
